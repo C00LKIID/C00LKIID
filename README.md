@@ -8,7 +8,7 @@
 
 &nbsp;<div align="center">
 
-$\LARGE\textcolor{#dd4144}{\textsf{C00LKID　　𝜗𝜚　　caleb}}$
+$\LARGE\textcolor{#dd4144}{\textsf{C00LKID　　𖥻　　caleb}}$
 
 $\LARGE\textcolor{#810f21}{\textsf{sixteen　　they/it}}$
 
@@ -16,13 +16,13 @@ $\LARGE\textcolor{#810f21}{\textsf{sixteen　　they/it}}$
 
 ㅤ ㅤ ㅤ ㅤ ㅤ
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=C00LKIID&color=a2a8b1&style=classic&format=long&label=⠀⠀⠀ᛝ⠀⠀⠀)
+![](https://komarev.com/ghpvc/?username=C00LKIID&color=dd4144&style=classic&format=long&label=C00LKIDS)
 
 </div>
 
 &nbsp;<div align="center">
 
-⁰⁰	 ⠀⠀ $\LARGE\textcolor{#dd4144}{\textsf{i}}$ 　 　 $\LARGE\textcolor{#810e1f}{\textsf{kissed}}$ 　 　 $\LARGE\textcolor{#ac111f}{\textsf{the}}$ 　 　 $\LARGE\textcolor{#8c464e}{\textsf{scars}}$  　 $\LARGE\textcolor{#951339}{\textsf{on}}$ 　 　 $\LARGE\textcolor{#5c6b59}{\textsf{her}}$ 　 　 $\LARGE\textcolor{#2b4e58}{\textsf{skin.}}$	 ⠀⠀﹒　 
+ ◟‌	 ⠀⠀ $\LARGE\textcolor{#dd4144}{\textsf{i}}$ 　 　 $\LARGE\textcolor{#810e1f}{\textsf{kissed}}$ 　 　 $\LARGE\textcolor{#ac111f}{\textsf{the}}$ 　 　 $\LARGE\textcolor{#8c464e}{\textsf{scars}}$  　 $\LARGE\textcolor{#951339}{\textsf{on}}$ 　 　 $\LARGE\textcolor{#5c6b59}{\textsf{her}}$ 　 　 $\LARGE\textcolor{#2b4e58}{\textsf{skin.}}$	 ⠀⠀𓄹　 
 
 </div>
 
